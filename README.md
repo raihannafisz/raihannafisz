@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **app , web**
 
-- 📫 How to reach me **raihannafis202@gmail.com**
+- 📫 How to reach me **whome2955@gmail.com**
 
 - ⚡ Fun fact **pemain mobile legends**
 
