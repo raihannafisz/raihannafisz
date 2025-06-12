@@ -11,8 +11,6 @@
 
 - 🌱 I’m currently learning **java script**
 
-- 👨‍💻 All of my projects are available at [https://nafisproduction.rf.gd](https://nafisproduction.rf.gd)
-
 - 💬 Ask me about **app , web**
 
 - 📫 How to reach me **whome2955@gmail.com**
